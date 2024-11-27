@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Projects to improve my self!
 - 📫 How to reach me: Email: prashkr6533@gmail.com
 - 😄 Pronouns: ... HE
-- ⚡ Fun fact: ... currently sutding as a BTech student in JNCT Bhopal.
+- ⚡ Fun fact: ... currently sutding as a BTech student in Lakshmi Narain College of Technology Bhopal.
 
 <!---
 RanDomGuY84/RanDomGuY84 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
